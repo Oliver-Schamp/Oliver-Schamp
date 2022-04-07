@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Oliver-Schamp
+- MEng Electronic Engineering Student at the University of Southampton
